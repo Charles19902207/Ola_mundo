@@ -5,4 +5,4 @@
 
  Eterno aprendiz!!!
 
- Editando pela orimeira vez diretamente no site.
+ Editando pela primeira vez diretamente no site.
